@@ -1,7 +1,7 @@
 # Selam dostlarım
 - Adım Burak 16 yaşındayım
 - 3 Yıldır yazılım ve kodlama ile uğraşıyorum. [html, php, javascript, css, python]
-- Discord adresim: burakyeagerr#0007, [[discord.gg/adresiniz](https://discord.gg/vionaty-craftrise-2-5k-845726967340466197)](davet link)
+- Discord adresim: burakyeagerr#0007, [[Vionaty](https://discord.gg/vionaty-craftrise-2-5k-845726967340466197)]
 - Web Sitem: https://burakyeager.com.tr
 - Aklınıza takılan bir sorun olursa sosyal medya hesaplarımdan ulaşabilirsiniz
 - Everything you can imagine is real -
