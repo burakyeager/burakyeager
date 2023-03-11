@@ -1,8 +1,8 @@
 # Selam dostlarım
 - Adım Selim 18 yaşındayım
 - 4 Yıldır yazılım ve kodlama ile uğraşıyorum. [html, php, javascript, css, python, C++]
-- Discord adresim: selim#1337, [discord.gg/adresiniz](davet link)
-- Web Sitem: https://selim1337.vercel.app/
+- Discord adresim: selim#1337, [discord.gg/vionaty](https://discord.gg/vionaty-craftrise-2-5k-845726967340466197)
+- Web Sitem: https://burakyeager.com.tr/
 - Aklınıza takılan bir sorun olursa sosyal medya hesaplarımdan ulaşabilirsiniz
 - Everything you can imagine is real -
 
